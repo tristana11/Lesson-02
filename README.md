@@ -21,3 +21,9 @@ https://www.youtube.com/watch?v=4ob6OlizlDA&ab_channel=DmitryRakovets
 https://www.youtube.com/watch?v=dOcz0JHG6Gk&ab_channel=DmitryRakovets
 
 https://www.youtube.com/watch?v=Pm5inMHW2GQ&ab_channel=DmitryRakovets
+
+https://www.youtube.com/watch?v=CjfBecZ0ow4&ab_channel=DmitryRakovets
+
+https://www.youtube.com/watch?v=dTocpHd8T80&ab_channel=DmitryRakovets
+
+https://www.youtube.com/watch?v=LJ1hLNthaWQ&ab_channel=DmitryRakovets
