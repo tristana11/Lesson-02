@@ -22,6 +22,8 @@ https://www.youtube.com/watch?v=dOcz0JHG6Gk&ab_channel=DmitryRakovets
 
 https://www.youtube.com/watch?v=Pm5inMHW2GQ&ab_channel=DmitryRakovets
 
+Git. IntelliJ IDEA. GitHub.
+
 https://www.youtube.com/watch?v=CjfBecZ0ow4&ab_channel=DmitryRakovets
 
 https://www.youtube.com/watch?v=dTocpHd8T80&ab_channel=DmitryRakovets
